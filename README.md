@@ -85,8 +85,8 @@
 
 ## Автор ✍️
 
-**Великие умы Вадим Хрисанов и два Артёма (Улинцев и Хомич) ОКБИ-204Б**  
-Email: vadimhrisanov723@gmail.com artemulincev@gmail.com artemhomich23@gmail.com
+**Товмасян Сережа ОКБИ-204Б**  
+Email: tovser78@gmail.com
 
 ---
 
